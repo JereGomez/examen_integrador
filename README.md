@@ -5,4 +5,4 @@ Jeremias Gomez Giglio
 Elkin Cadena Hurtado
 Marcos Portomene
 
-Grupo 13 (Puerco Araña)
+Grupo 13 - (Puerco Araña)
